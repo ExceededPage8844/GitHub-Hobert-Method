@@ -1,0 +1,52 @@
+# 7th Grade Mentee #1 — Exposure
+
+This document tracks observations related to new experiences, environments, or situations 7th Grade Mentee #1 has been exposed to. This includes reactions to novelty, discomfort with the unfamiliar, and growth from new contexts.
+
+## Observations
+
+- [2025-09-12] Visited the Lawrence Public Library for the first outing — took ownership of the space by choosing where to sit, suggesting comfort in new environments.
+- [2025-09-12] Had attended a health and wellness group session at FSMV the previous day — engaged with topics of personal hygiene, dental care, and skin care, and reported enjoying it.
+- [2025-09-12] Had a conversation with the mentor about the importance of good nutrition — receptive to wellness topics and able to discuss them without resistance.
+- [2025-09-12] Mentor was welcomed into the family home and shown the vegetable garden by 7th Grade Mentee #1's mother — his home environment includes an emphasis on growing food, which may reflect broader family values around health and self-sufficiency.
+- [2025-09-12] In all of the environments mentioned, he seemed to engage with each one. In the car, he was talkative and was excited to share new developments about his life at home and in school. In the library, he was focused on playing chess strategically and his performance improved steadily over games
+- [2025-10-09] Visited Smolak Farms in North Andover — first farm outing; picked Cortland, Macintosh, and Red Delicious apples to bring home to his family; engaged comfortably in a rural environment.
+- [2025-10-09] Toured Brooks School campus in North Andover — first exposure to an independent school environment; appeared genuinely interested and brought it up with his mother afterward.
+- [2025-10-09] Participated in mindfulness and yoga activities at the FSMV wellness meeting the previous day — second exposure to structured wellness programming; reported enjoying both the activities and the social elements (Uno, sandwiches).
+- [2025-10-09] Connected the peaceful farm environment to his mindfulness discussions — showing early ability to apply new wellness concepts to real-world experiences.
+- [2025-11-06] Visited the Addison Gallery of American Art at Phillips Academy — first fine art museum experience documented; engaged comfortably and with genuine curiosity.
+- [2025-11-06] Walked the Phillips Academy campus for the first time — second elite independent school campus visited (after Brooks School); mentor actively encouraged him to see it as a real future possibility.
+- [2025-11-06] New environments generate new questions and ideas for him. Being in the art museum opened up a new side of him that seemed very interested in American society and its corresponding history, including serious topics such as poverty, slavery, and social inequality
+- [2025-12-11] Tried candlepin bowling for the first time — a distinctly New England activity he had no prior experience with; remained enthusiastic despite the challenge.
+- [2025-12-11] Mentor shared a personal account of his neurosurgery experience in Boston — he was exposed to a firsthand medical narrative directly connected to his own career aspiration; a meaningful and personal form of exposure.
+- [2025-12-11] Whenever he is in an environment to directly have conversations with the mentor (Chick-fil-A this session) without an ongoing activity, he tends to talk about his aspirations to go into the medical field, school, and his growing love for chess
+- [2026-01-15] Visited the Essex Art Center in Lawrence — first exposure to a professional arts institution in his own city; toured with the Communications Manager, giving it an institutional weight beyond a casual visit.
+- [2026-01-15] Encountered pottery, kilns, and 3D printing technology in an art context — first documented exposure to art technology and digital fabrication tools.
+- [2026-01-15] Mentor explicitly connected drawing and fine motor precision to the skills of a neurosurgeon — first time his existing interests have been framed as direct preparation for his career aspiration; a meaningful conceptual bridge.
+- [2026-01-15] Discussed Critical Thinking, a film about chess — exposure to media that frames chess as a vehicle for academic achievement and social mobility; relevant to his own story.
+- [2026-01-15] The art center opened the creative side of his mind, especially in regard to the intersection of art and technology. When he went to the Lawrence Public Library to play chess, the strategic side of his mind emerged
+- [2026-01-27] First documented virtual mentoring session — adapted to a different format from in-person outings; sustained engagement across 45 minutes on screen.
+- [2026-01-27] Introduced to the word "ameliorate" and a structured Word of the Day format — first documented vocabulary enrichment exercise within the mentoring relationship.
+- [2026-01-27] Worked through scenarios on vaping refusal, conflict avoidance, and sibling relationships — first documented structured skills practice; exposed to a framework for thinking through real-world decisions before they happen.
+- [2026-01-27] This session was very different from all the other ones in the sense that it exposed him to out of the ordinary academic topics and real-world scenarios that he may have to navigate one day. He says he felt "relaxed" in response to all of this exposure, and he even identified drawing as a hidden personal strength of his
+- [2026-02-10] First documented use of Chess.com as a platform — introduced to a digital tool for chess that he can use independently outside of mentoring sessions.
+- [2026-02-10] Chess explicitly framed as a vehicle for planning, patience, and foresight in academics and everyday life — structured transfer of skills from a game context to broader life application.
+- [2026-02-10] The online chess environment didn't change much from how an ordinary chess match would be at the public library. After logging into the platform, chess was chess for him
+- [2026-02-12] Made a Valentine's Day card for his mother using library art supplies — first documented experience using art for explicit emotional expression and relational appreciation rather than pure creative interest.
+- [2026-02-12] Different environments bring different qualities out of him, which is easily observable by his emotional expression being shown in the card making activity, and his patience being exhibited in chess
+- [2026-03-03] Informed about his father's work in cybersecurity and youth education — exposure to a tech/education career pathway; he evaluated it honestly and declined interest, which is itself a meaningful outcome.
+- [2026-03-03] Lawrence General Hospital proposed as a future outing — anticipatory exposure to a professional medical environment directly tied to his neurosurgeon aspiration; first planned outing explicitly built around his stated career goal.
+- [2026-03-19] First documented financial literacy outing — given a real $30 budget and guided through applied concepts of spending, saving, and prioritizing; practical economic education in a real environment.
+- [2026-03-19] Toured Tuscan Village Marketplace in Salem, NH — a higher-end commercial environment distinct from downtown Lawrence; exposure to a different kind of economic and retail context.
+- [2026-03-19] Being at the Mall at Rockingham Park and Tuscan Village Marketplace was one of the first times we were able to see his delayed gratification and wise decision-making in shopping/spending environments
+- [2026-04-14] Worked through the Superman reading assignment in a supported academic context — first time literature has been used as direct academic support material within a mentoring session rather than as cultural exposure.
+- [2026-04-14] Continued preparation and anticipation-building for the Lawrence General Hospital visit — the outing is being actively discussed across multiple sessions, building context before arrival.
+- [2026-04-16] Second card-making session using library craft supplies — Mother's Day card follows the Valentine's Day card from February; a pattern of using art for relational and emotional expression is developing.
+- [2026-04-16] Discussed potential questions to ask healthcare professionals during the hospital visit — first time he has actively prepared questions for an upcoming exposure event; approaching the hospital as a learner, not just a visitor.
+- [2026-04-16] The Lawrence Public Library has many activities that support a wide range of his interests — whether it involves arts and crafts supplies to create a card for his mother, or a chessboard that allows his strategic thinking to flourish — the library has it all
+- [2026-05-12] Introduced to Lawrence General Hospital's high school internship program — first documented awareness of a concrete, accessible near-term pathway into medicine; moves the aspiration from abstract to actionable.
+- [2026-05-12] Discussed the relationship between current academic performance and future internship eligibility — first documented conversation explicitly linking present schoolwork to a specific career access point.
+- [2026-05-12] The virtual mentoring session allowed him to further concentrate and solidify his approach for the upcoming hospital visit, and he even played a couple matches of chess to reinforce patterns of strategic thinking and patience
+- [2026-05-14] Attended a healthcare career exploration evening at Lawrence General Hospital — the most significant and explicitly career-aligned exposure event in the entire mentoring record; prepared across three prior sessions for this single outing.
+- [2026-05-14] Granted special permission to attend as a middle school student at a high school event — formally recognized as an exceptional case by the institution; a form of external validation of his potential and seriousness.
+- [2026-05-14] Had direct conversations with physicians, healthcare workers, and older students in a professional setting — first documented real-world contact with medical professionals; moved from reading about medicine and aspiring toward it to actually standing in the room with people who practice it.
+- [2026-05-14] Exposed to discussions of medical school pathways, residency training, mentorship, patient care, compassion, professionalism, and physician fulfillment — the full arc of a medical career presented in a single evening; substantial and substantive exposure.
