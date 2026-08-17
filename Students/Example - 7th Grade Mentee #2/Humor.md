@@ -1,4 +1,4 @@
-# 7th Grade Mentee #2 — Humor
+# Example - 7th Grade Mentee #2 — Humor
 
 This document tracks observations related to humor in 7th Grade Mentee #2's interactions. This includes jokes, laughter, playfulness, sarcasm, and how humor functions as a social or coping tool.
 

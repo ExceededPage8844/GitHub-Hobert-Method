@@ -1,4 +1,4 @@
-# 7th Grade Mentee #1 — Anxiety-Reduction
+# Example - 7th Grade Mentee #1 — Anxiety-Reduction
 
 This document tracks observations related to anxiety in 7th Grade Mentee #1. This includes signs of stress, avoidance, nervousness, as well as moments of calm, coping, and de-escalation.
 

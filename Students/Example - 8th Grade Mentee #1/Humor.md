@@ -1,4 +1,4 @@
-# 8th Grade Mentee #1 — Humor
+# Example - 8th Grade Mentee #1 — Humor
 
 This document tracks observations related to humor in 8th Grade Mentee #1's interactions. This includes jokes, laughter, playfulness, sarcasm, and how humor functions as a social or coping tool.
 

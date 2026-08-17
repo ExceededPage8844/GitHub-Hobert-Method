@@ -1,4 +1,4 @@
-# 7th Grade Mentee #1 — Exposure
+# Example - 7th Grade Mentee #1 — Exposure
 
 This document tracks observations related to new experiences, environments, or situations 7th Grade Mentee #1 has been exposed to. This includes reactions to novelty, discomfort with the unfamiliar, and growth from new contexts.
 

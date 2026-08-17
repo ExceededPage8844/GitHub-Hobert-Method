@@ -1,4 +1,4 @@
-# 7th Grade Mentee #2 — Trust-Building
+# Example - 7th Grade Mentee #2 — Trust-Building
 
 This document tracks observations related to trust-building between 7th Grade Mentee #2 and the mentor. Trust-building encompasses rapport, honesty, vulnerability, consistency, and the student's willingness to open up over time.
 

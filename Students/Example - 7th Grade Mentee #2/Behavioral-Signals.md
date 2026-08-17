@@ -1,4 +1,4 @@
-# 7th Grade Mentee #2 — Behavioral-Signals
+# Example - 7th Grade Mentee #2 — Behavioral-Signals
 
 This document tracks behavioral observations that may indicate underlying needs, moods, or patterns. This includes body language, reactions, avoidance behaviors, emotional outbursts, and day-to-day behavioral shifts.
 
